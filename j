@@ -1,9 +1,0 @@
-1wqdq
-2wqdq
-3wqd
-4qwdqd
-5qwdq
-6qwdq
-7wqd
-8qd
-9qwddq
